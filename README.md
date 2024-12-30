@@ -1,3 +1,3 @@
 # Wizard 🧙‍♂️
 
-Alguns projetos de estudo ✏️
+Alguns projetos de estudo ⚗️
